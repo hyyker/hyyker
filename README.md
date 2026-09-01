@@ -1,5 +1,7 @@
-## Hi there 👋
+## Haiiiiii!!
 
+I'm Mia 🏳️‍⚧️ :3
+idk what to put here lol
 <!--
 **hyyker/hyyker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
